@@ -1,2 +1,2 @@
 # CrossFight
-The Best of the Best Christian MMA fighters enter the International octogan to show their faith that "Jesus never taps".
+The Best of the Best Christian MMA fighters, a Jew and a Muslim enter the international octogan to show their faith in their moto "Jesus never taps".
